@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I have things to show you, but I am keeping it a little bit secret for now. So please contact me and I will give you access! 
+[LinkedIn](https://www.linkedin.com/in/thohuj/)
